@@ -1,12 +1,12 @@
 # Hire Chinese Freelancers!
-Chinese proofreading  
-Chinese blogging  
-Chinese article writing  
-Chinese APP description  
-Chinese search engine optimization  
-Chinese product info  
-Chinese consultant  
-Chinese data entry  
+Chinese Proofreading  
+Chinese Blogging  
+Chinese Article Writing  
+Chinese APP Description  
+Chinese Search Engine Optimization  
+Chinese Product Info  
+Chinese Consultant  
+Chinese Data Entry  
   
     
 Top 1 university  
