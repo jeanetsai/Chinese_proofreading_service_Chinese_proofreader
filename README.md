@@ -5,7 +5,7 @@ Chinese Article Writing
 Chinese Search Engine Optimization  
 Chinese APP Description (App Store Optimization)  
 Chinese Keyword Research  
-Chinese Product Info  
+Chinese Product Description  
 Chinese Consultant  
 Chinese Data Entry  
   
