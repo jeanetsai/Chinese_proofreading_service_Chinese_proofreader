@@ -3,7 +3,7 @@ Chinese Proofreading
 Chinese Blogging  
 Chinese Article Writing  
 Chinese Search Engine Optimization  
-Chinese APP Description (App Store Optimization) 
+Chinese APP Description (App Store Optimization)  
 Chinese Keyword Research  
 Chinese Product Info  
 Chinese Consultant  
