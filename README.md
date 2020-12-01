@@ -10,7 +10,8 @@ Chinese Consultant
 Chinese Data Entry  
   
     
-Top 1 university  
+Top 1 university in Taiwan 
+(Traditional Chinese/Simplified Chinese Native Speaker and Blogger)
 Lin Yutang Literature Award - Finalist  
 jeanetsaihc@gmail.com  
 New Taipei Creative Lab  
