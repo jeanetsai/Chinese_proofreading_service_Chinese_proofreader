@@ -1,4 +1,4 @@
-# Hire Chinese Freelancers!
+# Chinese Services  
 Chinese Proofreading  
 Chinese Blogging  
 Chinese Article Writing  
@@ -14,5 +14,5 @@ Top 1 university in Taiwan
 (Traditional Chinese/Simplified Chinese Native Speaker and Blogger)   
 Lin Yutang Literature Award - Finalist     
 jeanetsaihc@gmail.com  
-New Taipei Creative Lab  
+New Taipei Creative Cloud Lab  
 https://www.facebook.com/NewTaipeiCreativeLab/  
