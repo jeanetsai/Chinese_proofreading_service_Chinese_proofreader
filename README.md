@@ -4,7 +4,7 @@ Chinese Blogging
 Chinese Article Writing  
 Chinese APP Description  
 Chinese Search Engine Optimization 
-C
+Chinese Keyword Research  
 Chinese Product Info  
 Chinese Consultant  
 Chinese Data Entry  
