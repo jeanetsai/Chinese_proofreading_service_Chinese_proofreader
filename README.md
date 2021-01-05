@@ -1,5 +1,6 @@
 # Chinese Services  
-Chinese Proofreading  
+Chinese Proofreading 
+Chinese Copywriting  
 Chinese Blogging  
 Chinese Article Writing  
 Chinese Search Engine Optimization  
