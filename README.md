@@ -12,7 +12,7 @@ Chinese Consultant
     
  Traditional Chinese / Simplified Chinese Native Speaker and Blogger Team   
  University entrance exam: 15 out of 15 in Chinese exam, the highest composite score    
-The Lin Yutang Literature Award - Finalist     
+The Lin Yutang Literary Award - Finalist     
 tsaiforhr@gmail.com  
 New Taipei Creative Cloud Lab  
 https://www.facebook.com/NewTaipeiCreativeLab/  
