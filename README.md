@@ -11,7 +11,7 @@ Chinese Consultant
   
     
 Top 1 university in Taiwan   
-(Traditional Chinese/Simplified Chinese Native Speaker and Blogger)   
+(Traditional Chinese / Simplified Chinese Native Speaker and Blogger)   
 The Lin Yutang Literature Award - Finalist     
 tsaiforhr@gmail.com  
 New Taipei Creative Cloud Lab  
