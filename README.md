@@ -10,7 +10,7 @@ Chinese Product Description
 Chinese Consultant  
   
     
- Traditional Chinese / Simplified Chinese Native Speaker and Blogger
+ Traditional Chinese / Simplified Chinese Native Speaker and Blogger   
  University entrance exam: 15 out of 15 in Chinese exam, the highest composite score.  
 The Lin Yutang Literature Award - Finalist     
 tsaiforhr@gmail.com  
