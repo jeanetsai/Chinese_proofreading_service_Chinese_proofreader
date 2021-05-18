@@ -10,8 +10,8 @@ Chinese Product Description
 Chinese Consultant  
   
     
-Top 1 university in Taiwan   
-(Traditional Chinese / Simplified Chinese Native Speaker and Blogger)   
+ Traditional Chinese / Simplified Chinese Native Speaker and Blogger
+ University entrance exam: 15 out of 15 in Chinese exam, the highest composite score.  
 The Lin Yutang Literature Award - Finalist     
 tsaiforhr@gmail.com  
 New Taipei Creative Cloud Lab  
